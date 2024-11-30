@@ -1,4 +1,4 @@
 # hello-world
 My First Repository.
 I like gaming and socializing!
-I've been scammed on Cubic Castles two times.
+I've been doing some really stupid stuff lately...
